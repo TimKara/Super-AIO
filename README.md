@@ -19,6 +19,12 @@ https://www.aliexpress.com/item/32798904926.html?spm=a2g0s.9042311.0.0.EqXnRL
 
 https://www.sudomod.com/forum/viewtopic.php?f=38&t=2320
 
+https://www.sudomod.com/forum/viewtopic.php?f=40&t=3805
+
+https://sudomod.com/forum/viewtopic.php?f=38&t=5346
+
+https://www.sudomod.com/forum/viewtopic.php?f=38&t=3309
+
 
 _____________________________________________________
 
